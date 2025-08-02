@@ -2,7 +2,7 @@
 
 **`Aspirante da tecnologia`**
 
-Me chamo Júlio Littig, tenho 19 anos e sou natural do espirito santo. Concluí o ensino médio no Fioravante Caliman, com o curso técnico em informática. Atualmente, Sou apaixonado por tecnologia e o meu Instagram, com o perfil chamado "[Julio_littig](https://www.instagram.com/julio_littig/)".
+Me chamo Júlio Littig, tenho 19 anos e sou natural do Espírito Santo. Concluí o ensino médio no Fioravante Caliman, com o curso técnico em informática. Atualmente, Sou apaixonado por tecnologia, o meu Instagram chamado "[Julio_littig](https://www.instagram.com/julio_littig/)".
 
 
 
